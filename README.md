@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @sayyoramasharipova
-- 👀 I’m interested in playing game
+- 👋 Hi, I’m Sayyora
+- 👀 I’m interested in playing game 
 - 🌱 I’m currently learning English language
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me ...
